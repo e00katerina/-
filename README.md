@@ -47,4 +47,3 @@
 ![image](https://github.com/user-attachments/assets/b4669910-b9e0-4197-8578-b9cb418264cb)
 
 
-Преимущества использования 
